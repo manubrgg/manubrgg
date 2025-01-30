@@ -2,8 +2,7 @@
 
 <h2>reform.</h2>
 
-- Pronouns: She/Her
-- intp!
+
 - 
 ##
 
